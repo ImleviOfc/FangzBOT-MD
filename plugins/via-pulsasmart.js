@@ -5,8 +5,8 @@ Hay👋‹, ingin Donasi?
 
 💌 *Pembayaran*
 💳 Via: Dana 
-📞 Nomor: 088215689772
-👤 A/n: Fangz
+📞 Nomor: 085172446692
+👤 A/n: levi
 📝 Mitra: Fangz BOT
 💰 Metode pembayaran: Online ( ~Cod~ )
 
